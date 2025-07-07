@@ -11,4 +11,4 @@
 
 这些平台提供了广泛的日本AV免费影片，确保你可以随时免费观看高质量的视频。无论是最新的热门影片，还是经典的老片，这些网站都能满足你的需求。每个视频页面都附有详细的信息，包括演员、视频清晰度、更新日期等。最重要的是，平台优化了视频播放速度，保证无卡顿的流畅观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/haha20250707/haha8 ）</span>
